@@ -1,3 +1,3 @@
 # LabExer06A
 
-Pagnabasa mo to, bading ka
+Pag nabasa mo to, bading ka
